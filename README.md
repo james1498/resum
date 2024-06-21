@@ -8,3 +8,6 @@
 [輔仁大學經濟系]（https://economics.fju.edu.tw/）
 - 興趣:**打球**、看電影、旅遊
 <hr>
+
+### 個人著作
+![]（https://i.imgur.com/4Y8rFgq.jpg）
